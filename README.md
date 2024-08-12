@@ -12,4 +12,4 @@ I...
 
 ## How to get in touch:
 - 🦋 Blue Sky [@susannah.codes](https://bsky.app/profile/susannah.codes)
-- ✉️ Email: hi@susannah.codes
+- ✉️ Email: susannahcodes@gmail.com
